@@ -1,0 +1,3 @@
+- :) Hi, I’m @JeezzLouise but you can just call me Louise :)
+- From South Africa, Pretoria.
+- Brand new baby coder! Learing to code everyday <3
