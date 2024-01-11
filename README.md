@@ -1,3 +1,4 @@
 - :) Hi, I’m @JeezzLouise but you can just call me Louise :)
+- Creative thinker and tinkerer.
 - From South Africa, Pretoria.
 - Brand new baby coder! Learing to code everyday <3
